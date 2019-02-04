@@ -1,1 +1,1 @@
-The are my research notes for my research assignment
+This is my research notes for my research assignment
